@@ -1,4 +1,4 @@
 - Hi, welcome to me.
 - I like the aviation and coding.
-  Actually im moding my Wii.
+  Im actually mooding my Wii
 - Well, Bye!
